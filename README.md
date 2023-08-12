@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shubhankar0115@gmail.com**
 
-- 📄 Know about my experiences [bit.ly/resumeofshubhankar](bit.ly/resumeofshubhankar)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1rAei5HvCejyjIW1BCtJIR3hXrl41804k/view?usp=drive_link](https://drive.google.com/file/d/1rAei5HvCejyjIW1BCtJIR3hXrl41804k/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
